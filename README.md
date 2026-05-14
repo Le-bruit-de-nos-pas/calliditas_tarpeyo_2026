@@ -1,1 +1,0 @@
-# calliditas_tarpeyo_2026
